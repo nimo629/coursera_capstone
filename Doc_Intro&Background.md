@@ -8,8 +8,7 @@ also been identified from other reports to have the best disposible income, woul
 would be more upmarket.
 
 https://www.thesouthafrican.com/news/cape-town-vs-johannesburg-vs-durban-quality-of-life/
-https://businesstech.co.za/news/lifestyle/366416/the-most-expensive-cities-in-south-africa-in-2020-pretoria-vs
--joburg-vs-cape-town-vs-durban/
+https://businesstech.co.za/news/lifestyle/366416/the-most-expensive-cities-in-south-africa-in-2020-pretoria-vs-joburg-vs-cape-town-vs-durban/
 https://afrotourism.com/travelogue/holiday-best-bet-cape-town-vs-durban/
 
 From the investigation, the intent is to also understand  the type of restaurants and the location of such within the cities.
